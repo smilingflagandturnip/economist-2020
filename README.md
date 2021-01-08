@@ -4,4 +4,4 @@
 目前音频采用ebook3000的资源，电子书采用ebook3000和知乎寻路小司机的资源 
 有问题请私信
 https://quqi.com/3992694/0
-https://cloud.189.cn/t/Z3iuqqJRvu6j（访问码：3h4x）
+https://cloud.189.cn/t/Z3iuqqJRvu6j (访问码：3h4x)
